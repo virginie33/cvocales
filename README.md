@@ -1,3 +1,3 @@
 # cvocales
 site personnel
-voila le lien http://couleur33vocale.comli.com/index.html
+voila le lien http://couleursvocales.comlu.com/index.html
